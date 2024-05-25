@@ -1,0 +1,6 @@
+- Hi, I’m @sinomoka404
+- I’m interested in coding and programming
+- I’m currently learning Python 3
+- How to reach me. Discord: siniprint
+- Pronouns: She/Her
+- Fun fact: I like cheese because yes
